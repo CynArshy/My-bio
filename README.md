@@ -10,5 +10,3 @@ Since 2020 the family is very independent and they don't need me as before. Hope
 My dream job is to work as a Data Analyst consultant for a big company or as freelancer and to help many companies to succeed in their business. I look forward to being able to combine my love for economics, statistics, forecasting with IT methodologist to help businesses improve and keep competitive in the marketplace.
 
 I love jogging and doing sports. Favourite music Kari Jobe, Jesus Adrian Romero. I like dancing salsa and fun music. One of my favourite books was Rich dad poor dad by Robert Kiyosaki.
-
-All the best
